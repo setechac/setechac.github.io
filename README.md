@@ -1,1 +1,0 @@
-# setechac.github.io
